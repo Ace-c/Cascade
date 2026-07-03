@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> I couldn't finish this project as I wanted(I do have some plans for it, but not time), will continue after for atleast an year. Hopefully!
+> I couldn't finish this project as I wanted(I do have some plans for it), will continue after an year. Hopefully!
 
 # Themes 
 
